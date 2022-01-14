@@ -14,6 +14,10 @@ I will kill you if I have to.
 
 I know everything I need to know to simply ruin your reputation and possibly even your life.
 
+If you are seeing this, Alivia or possibly a friend with association with Alivia,
+
 Run while you can.
 
+
 N̷e̸v̶e̸r̶ ̷f̷l̸y̷ ̶t̴o̵o̵ ̸c̴l̸o̷s̵e̴ ̷t̸o̸ ̵t̷h̸e̷ ̴f̸i̴r̶e̵
+
